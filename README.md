@@ -1,3 +1,3 @@
 # Japanese
 I'm normal Japanese.
-here is my private area.
+here is every people's place to enjoy
